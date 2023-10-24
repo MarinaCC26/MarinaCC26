@@ -1,4 +1,4 @@
-✨Hello, I'm Marina!✨
+✨Hello, I'm Marina and i'm trying to be an artist!✨
 
 
 <!---
